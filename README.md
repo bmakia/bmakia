@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @bmakia
+- 👋 Hi, I’m Brittnee
 - 👀 I’m interested in ... The metaverse, design and beauty tech.
 - 🌱 I’m currently learning ...all about crypto currency, Web3 and NFTs.
 - 💞️ I’m looking to collaborate on ...anything innovative. 
